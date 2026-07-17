@@ -18,4 +18,4 @@ Python | Java | Data Visualization |
 
 
 ## Let's connect
-📍 DFW, TX | [LinkedIn](www.linkedin.com/in/saviah-shabazz-741483347) | 
+📍 DFW, TX | **[LinkedIn](www.linkedin.com/in/saviah-shabazz-741483347)** | 
